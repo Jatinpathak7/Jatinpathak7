@@ -1,5 +1,5 @@
-# 💫 About Me:
-I'm currently learning web dev
+# 💫 About Me
+student....
 
 
 ## 🌐 Socials:
